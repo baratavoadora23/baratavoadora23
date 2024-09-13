@@ -1,4 +1,4 @@
-## Seja bem vindo ao meu peril! 🫀
+## Seja bem vindo ao meu perfil! 🫀
 
 Meu nome é Isabella Ribeiro
 
